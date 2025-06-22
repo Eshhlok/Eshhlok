@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me eshlok.agarwal2023@vitstudent.ac.in 
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I am keen doing anything and everything except to study and even if I do I just hate exams.
+- ⚡ Fun fact: I am keen doing anything and everything especially trying out new things.
 
 <!---
 Eshhlok/Eshhlok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
